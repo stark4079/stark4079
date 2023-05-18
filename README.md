@@ -5,3 +5,5 @@
 - 👨‍💻 Researching on the link Prediction in Knowledge Graphs.
 
 :mailbox: You could contact me via [mail](mailto:xuanloc2018@gmail.com) or [LinkedIn](https://www.linkedin.com/in/stark4079/).
+
+https://filetransfer.io/data-package/F3IPWF3l#lin
